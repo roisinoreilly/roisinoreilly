@@ -7,4 +7,3 @@ I'm Róisín, I'm a trainee software developer at the Northcoders bootcamp gradu
 - 📫 How to reach me: [Email](mailto:roisin.oreilly1996@gmail.com) or [LinkedIn](https://www.linkedin.com/in/roisinoreilly1/)
 - 😄 Pronouns: she/her
 - 🎮 Interests include: Magic the Gathering, Nintendo and horror movies
-- ⚡ Fun fact: I own a pram for my cats 🐈🐈
